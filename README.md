@@ -1,0 +1,2 @@
+# ftfyzb
+Daily digest notes
